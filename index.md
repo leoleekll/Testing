@@ -13,10 +13,10 @@
 
 
 🗿
+
 :shit:
 :poop:
-
-::trollface::
+:trollface:
 
 cgh2 said
 
